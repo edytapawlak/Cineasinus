@@ -1,3 +1,3 @@
-Cinemasinus
+Cineasinus
 ====
 
